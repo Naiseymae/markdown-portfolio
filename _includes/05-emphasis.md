@@ -1,0 +1,1 @@
+I can create *awesome* crocheted items, that are **nerdy** and **functional**.  I love reading fiction about **DRAGONS** and **SCIFI**, and when I'm feeling more academic love *nature documentaries* and *astrobiology textbooks.*  In short, I ***love*** all things **NERD**!
