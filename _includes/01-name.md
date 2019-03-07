@@ -1,5 +1,5 @@
 # **naisey * mae**
 ##### *NICKNAME*
 ##### *USERNAME*
-##### *FUN AND FREE*
+##### *ME AND FREE*
 ##### *AKA: RENEE LINFORD*
