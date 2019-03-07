@@ -1,1 +1,8 @@
-Replace this with a list of your favorite things.
+-  Biology
+-  Astronomy
+-  Crochet
+-  Video Games
+-  Theater
+-  Harry Potter
+-  Lord of the Rings
+-  Doctor Who
